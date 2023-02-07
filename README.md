@@ -1,3 +1,3 @@
 # LiveBinds
 Texto de exemplo do artigo sobre LiveBinds
-Leia na íntegra em: https://www.instagram.com/p/CoXiaViOLfF
+Leia na íntegra em: https://link.medium.com/1wrLoy8gexb
